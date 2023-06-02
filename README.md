@@ -1,1 +1,1 @@
-This will be the readme file 
+A baby elephant can stand within ten minutes of birth 
